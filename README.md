@@ -9,6 +9,3 @@ Meu nome é Marco Antônio Leite Ribeiro
 ### Você pode entrar em contato comigo (Não se atreva)
 
 00001090170932sp@al.educacao.sp.gov.br
-
-
-![](https://tenor.com/bdZHu.gif)
